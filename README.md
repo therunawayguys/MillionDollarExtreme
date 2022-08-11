@@ -9,4 +9,4 @@ I have interests that could be considered "controversial",
 though I enjoy them critically & w/o support in some cases.
 I am blunt and I don't really care about your opinions on me.
 
-WIP
+No DNI, no triggers, I just don't befriend people under 18.
